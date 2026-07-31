@@ -1,6 +1,7 @@
 NOT FINISHED!!
+<img width="582" height="429" alt="image" src="https://github.com/user-attachments/assets/4a8e92bf-9f81-4009-b235-4e96afc4fd2b" />
 
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/c12f965c-33b3-4a71-a053-1ced8732b938" />
+
 
 
 
