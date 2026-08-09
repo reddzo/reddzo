@@ -1,3 +1,3 @@
-## Guys this is serious !
-<img width="444" height="562" alt="image" src="https://github.com/user-attachments/assets/f10219b0-00b6-4d49-887d-77f7680b587a" />
+## FINISHING SOON!
 
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/d3361dd8-008d-471b-89eb-ccda3e71ba6e" />
