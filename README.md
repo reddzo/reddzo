@@ -4,29 +4,12 @@
 
 Oh and don't add me unless I know you I barely remember anyone and some people I do are people I REALLY don't want to interact with anymore. Anyways, please keep this in mind.
 
-1
+i listen to songs while offtab (doing work) like these:
 
+HER - SkyDxddy 10/10 for me
 
-2
+Too Little, Too Late - Laufey 10/10 :D
 
+This Is Home - CaveTown 9/10
 
-3
-
-
-4
-
-
-5
-
-
-6
-
-
-7
-
-
-8
-
-
-9
-
+Time Will Fly - Sam Tompkins 9.8/10
